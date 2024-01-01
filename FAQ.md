@@ -1,0 +1,19 @@
+# FAQ Часто задаваемые вопросы
+
+## How many photos can I post?
+## Сколько фотографий я могу выложить в пост?
+ 
+We know you want to show off your fabulous furry face,  
+Мы знаем что вы хотите похвастаться своим потрясающим пушистым экстерьером,
+
+ so we’ve given you space to upload up to 15 photos!  
+ поэтому мы даём вам место для загрузки 15 фотографий!
+
+For those who are camera-shy,  
+Для тех, кто стесняется камеры,
+
+we recommend posting at least one to bring your profile some attention.  
+мы рекомендуем хотя бы один снимок, чтобы привлечь внимание к вашему профилю.
+
+Showcase your best self—whether that means a fresh-from-the-groomer glamour shot or an action shot from your last game of fetch.  
+Продемонстрируте себя с лучшей стороны - будь то гламурный снимок, сделанный сразу после гра=уминга, или кадр из вашей последней игры.
